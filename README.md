@@ -1,0 +1,2 @@
+# Boshqattan
+sayt haqida
